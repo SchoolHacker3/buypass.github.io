@@ -1,1 +1,0 @@
-# buypass.github.io
